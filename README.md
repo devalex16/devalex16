@@ -1,3 +1,4 @@
-Olá Pessoas, Me chamo Alex!! 🧏🏿‍♂️ <br>
+Olá Pessoas, Me chamo Alex! 🧏🏿‍♂️ <br>
 Sou um cara apaixonado pelo Front-End. ❤️🔥<br>
-Desenvolvedor de Sites do Lado Visual das coisas.
+Tentando ser o melhor no que eu faço 👾<br>
+
